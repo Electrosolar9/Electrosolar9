@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Electrosolar9
+- 👀 I’m interested energy proyects and electronics.
+- 🌱 I’m currently learning about ions abd interaction with matter
+- 💞️ I’m looking to collaborate on renewable energy issues...
+- 📫 How to reach me write a email to electrosolar9@gmail.com
